@@ -1,3 +1,3 @@
 # BIT16
 
-# I Will put my nake here T: Juha
+# I Will put my name here T: Juha
